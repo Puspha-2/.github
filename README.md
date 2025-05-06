@@ -69,6 +69,6 @@ Devi Sri Prasad delivers another chartbuster soundtrack. From powerful backgroun
 
 > **Note:** Make sure to support the official release. This is for educational/demo purposes only.
 
-[![Download Now](https://mechanicladenthereby.com/cjp6emcfcq?key=25f47ed24d0224454e82558323527910)](https://mechanicladenthereby.com/cjp6emcfcq?key=25f47ed24d0224454e82558323527910)
+[![Download Now](https://img.shields.io/badge/Download-HD%20Rip-red?style=for-the-badge&logo=download)](https://mechanicladenthereby.com/cjp6emcfcq?key=25f47ed24d0224454e82558323527910)
 
 ---
