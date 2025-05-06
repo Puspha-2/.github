@@ -1,5 +1,5 @@
 # 🎬 Pushpa 2: The Rule – Movie Review
-
+<meta name="google-site-verification" content="WOZFS_pujM5SsND04azYJIoty36jHFUTtbyXovibSfI" />
 ![Pushpa 2 Poster](https://i.ibb.co/RGjk4Dwy/download.jpg)
 
 **Directed by:** Sukumar  
